@@ -1,1 +1,1 @@
-# Study-Notes
+# Study-Resources
